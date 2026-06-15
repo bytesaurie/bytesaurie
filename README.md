@@ -22,4 +22,4 @@
   </a>
 </p>
 
-<p align="center"> <a href="https://dued1u.straw.page/">☾ ✸ ☽</a> ${\textsf{\color{#6aa7a1} ❤︎  ໋𓈒 }}$ <a href="https://cave-system.atabook.org/">☾ ✸ ☽</a>
+<p align="center"> <a href="https://reactionduo.straw.page/">☾ ✸ ☽</a> ${\textsf{\color{#6aa7a1} ❤︎  ໋𓈒 }}$ <a href="https://cave-system.atabook.org/">☾ ✸ ☽</a>
